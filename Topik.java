@@ -15,7 +15,16 @@ d
 q
 d
 wd
-asd
+asdll
+kl
+ůkl
+ůkl
+ůkl
+ů
+klů
+kl
+ůkl
+ů
 sad
 s
 dmnlk
